@@ -1,2 +1,2 @@
 # hello-world
-First project.
+First project. love github, so started this account. also, i like coding.
